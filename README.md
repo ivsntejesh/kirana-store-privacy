@@ -1,4 +1,4 @@
-# Kirana Store – Privacy Policy
+# Sarko – Privacy Policy
 
 Published at https://ivsntejesh.github.io/kirana-store-privacy/
 
